@@ -43,6 +43,6 @@ Feel free to explore the folders and notebooks. Each project contains:
 
 ## 📫 Let’s Connect
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/leonardo-ccamposss/)) or check out more of my work!
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/leonardo-ccamposss/) or check out more of my work!
 
 
